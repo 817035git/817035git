@@ -2,7 +2,7 @@
 - 👀 I’m interested in ...PROGRAMMING
 - 🌱 I’m currently learning ...a lot
 - 💞️ I’m looking to collaborate on ...gGNUCOBOL
-- 📫 How to reach me ..PHONE+1 5305542161.SKYPE MSROBOTSEMAIL M.SOMMER!@baUINTEGRA.DE
+- 📫 How to reach me ..PHONE+1 5305542161.SKYPE MSROBOTSEMAIL M.SOMMER@baUINTEGRA.DE
 - ⚡ Fun fact: ...
 
 <!---
