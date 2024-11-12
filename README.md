@@ -1,5 +1,5 @@
 - 👋 Hi, I’m @817035mICHAEL sQMMER
-- 👀 I’m interested in ...nothing
+- 👀 I’m interested in ...PROGRAMMING
 - 🌱 I’m currently learning ...a lot
 - 💞️ I’m looking to collaborate on ...gGNU  COBOL
 - 📫 How to reach me ...
