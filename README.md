@@ -1,4 +1,4 @@
-- 👋 Hi, I’m @817035mICHAEL sQMMER
+- 👋 Hi, I’m @817035mICHAEL   SoMMER
 - 👀 I’m interested in ...PROGRAMMING
 - 🌱 I’m currently learning ...a lot
 - 💞️ I’m looking to collaborate on ...gGNUCOBOL
