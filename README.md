@@ -2,8 +2,7 @@
 - 👀 I’m interested in ...PROGRAMMING
 - 🌱 I’m currently learning ...a lot
 - 💞️ I’m looking to collaborate on ...gGNU  COBOL
-- 📫 How to reach me ...
-- 😄 Pronouns: ...
+- 📫 How to reach me ..PHONE+1 5305542161.SKYPE MSROBOT SEMAIL M.SOMMER!BAUINTEGRA.DE
 - ⚡ Fun fact: ...
 
 <!---
