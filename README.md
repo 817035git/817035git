@@ -1,8 +1,8 @@
 - 👋 Hi, I’m @817035mICHAEL sQMMER
 - 👀 I’m interested in ...PROGRAMMING
 - 🌱 I’m currently learning ...a lot
-- 💞️ I’m looking to collaborate on ...gGNU  COBOL
-- 📫 How to reach me ..PHONE+1 5305542161.SKYPE MSROBOTSEMAIL M.SOMMER!@bauUINTEGRA.DE
+- 💞️ I’m looking to collaborate on ...gGNUCOBOL
+- 📫 How to reach me ..PHONE+1 5305542161.SKYPE MSROBOTSEMAIL M.SOMMER!@baUINTEGRA.DE
 - ⚡ Fun fact: ...
 
 <!---
